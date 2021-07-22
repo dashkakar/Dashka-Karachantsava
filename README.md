@@ -1,1 +1,1 @@
-# Dashka-Karachantsava
+# Karachantsava
